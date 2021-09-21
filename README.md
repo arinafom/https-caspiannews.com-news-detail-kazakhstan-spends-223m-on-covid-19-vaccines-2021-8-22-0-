@@ -1,0 +1,1 @@
+# https-caspiannews.com-news-detail-kazakhstan-spends-223m-on-covid-19-vaccines-2021-8-22-0-
